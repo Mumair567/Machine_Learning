@@ -71,7 +71,7 @@ This type of forecasting can assist:
 I'm always open to feedback, suggestions, or collaboration!
 
 🔗 [Connect with me on LinkedIn](https://www.linkedin.com/in/muhammad-umair-925508236/)  
-📧 Email: your.email@example.com
+📧 Email: umair786uet@gmail.com
 
 ---
 
